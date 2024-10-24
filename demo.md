@@ -1,5 +1,5 @@
 welcome to the digital world.
 
-your name is Tai.
+“Note that this toothbrush is totally safe to use for children, adults, pets, and wildlife.” 
 
 Digimon are here.
